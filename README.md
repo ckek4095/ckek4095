@@ -18,5 +18,6 @@
 
 - Телеграм-канал: [исполнитель](https://t.me/performer67)
 - Kwork: [кот в контейнере](https://kwork.ru/user/cat_in_container)
+- Почта для связи: ponzostki3@gmail.com
 
 🐧 Санкт-Петербург · **Открыта к небольшим оплачиваемым задачам**
